@@ -1,2 +1,2 @@
 # SSP
-资源平台q  gg
+资源平台q  ggjj
